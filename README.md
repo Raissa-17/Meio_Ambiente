@@ -6,5 +6,5 @@ Se porventura estiver interessado em ler a nossa wiki, adoraríamos que se junta
 Estamos super animadas, caso queira esperar pela as nossas novas atualizações.
 Acreditamos que juntos, podemos mitigar os problemas, e evitando assim, sofrer as consequencias.
 
-          -  Atenciosamente, equipe do Portal: Juntos contra a poluição.
-          10/08/2024
+-  Atenciosamente, equipe do Portal: Juntos contra a poluição.
+   10/08/2024
